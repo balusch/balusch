@@ -1,1 +1,2 @@
-![](./profile-3d-contrib/profile-green-animate.svg)
+- Why act now? Why not wait?
+- The world could wait no longer.
