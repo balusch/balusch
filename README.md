@@ -1,2 +1,2 @@
-- Q: Why act now? Why not wait?
-- A: The world could wait no longer.
+- Why act now? Why not wait?
+- The world could wait no longer.
